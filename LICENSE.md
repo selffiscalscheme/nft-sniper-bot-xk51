@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft sniper bot with high-frequency NFT Scanner for nft sniper bot | real-time-monitoring & simulation-mode. Featuring real-time-monitoring and simulation-mode,
 
 
 
